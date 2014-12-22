@@ -35,9 +35,21 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Susanna: or, the arraignment of the two vniust eldersAylett, Robert, 1583-1655?1622Approx. 82 KB of 
+SVSANNA: OR, THE ARRAIGNMENT OF THE TWO VNIVST ELDERS.DEVT. 16.20.That which is iust and right shalt
+1. To the Right Honourable ROBERT, EARLE of WARVVICKE, and to his most vertuous and Noble Countesse, the Lady Frances:
+
+1. The Argument, or Morall, of the whole Historie.
+
 #####Body#####
-Susanna: or, the arraignment of the two vniust eldersAylett, Robert, 1583-1655?1622Approx. 82 KB of 
+
+1. THE FIRST BOOKE OF SVSANNA.
+
+1. The second Booke of Susanna.
+
+1. THE THIRD BOOKE OF SVSANNA.
+
+1. THE FOVRTH BOOKE OF SVSANNA.
+
 **Types of content**
 
   * There are 1474 **verse** lines!
