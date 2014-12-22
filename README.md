@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-SVSANNA: OR, THE ARRAIGNMENT OF THE TWO VNIVST ELDERS.DEVT. 16.20.That which is iust and right shalt
+
 1. To the Right Honourable ROBERT, EARLE of WARVVICKE, and to his most vertuous and Noble Countesse, the Lady Frances:
 
 1. The Argument, or Morall, of the whole Historie.
